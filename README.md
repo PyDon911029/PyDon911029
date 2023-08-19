@@ -4,7 +4,7 @@ Knowledge is light.
 - 🌱 I’m currently learning "nohow" technology.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
-- SKYPE id: live:.cid.e76a7a10c0592521
+- SKYPE id: live:.cid.8713b8911b4035da
 - jym911029@gmail.com
 - telegram: jym911029
 
