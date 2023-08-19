@@ -1,4 +1,4 @@
-Knowledge is really light.
+Knowledge is light.
 - 👋 Hi, I’m @PyDon911029
 - 👀 I’m very interested in discussing about scientifical problem.
 - 🌱 I’m currently learning "nohow" technology.
